@@ -18,4 +18,7 @@
   - Es la bebé y la menor de la familia. Tiene un año, y físicamente es la versión preescolar de Lisa. Tiene el cerebro de un constante infractor de la ley e incluso en varias ocasiones ha usado armas de fuego y agredido gente; a pesar de ello mantiene la inocencia y ternura de una bebé. 
 
 ### ¿ Qué personaje es su favorito? :+1: 
-mi personaje favorito seria Homero simpson por ser un personaje tan loco y divertido :loco: 
+mi personaje favorito seria Homero simpson por ser un personaje tan loco y divertido  
+
+### Esta es la Familia 
+!(image.png)
